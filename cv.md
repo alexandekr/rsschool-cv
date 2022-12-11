@@ -1,4 +1,4 @@
 Alexander Kalendo
 Contacts:
-tel. +375293813525
+tel. +375 29 3813525
 Kalendo_sasha@mail.ru
